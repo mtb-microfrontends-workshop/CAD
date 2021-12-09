@@ -1,0 +1,2 @@
+# CAD
+Canadian Dollar
